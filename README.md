@@ -1,3 +1,4 @@
+![images](https://github.com/user-attachments/assets/8c11ea09-ce4d-4869-850e-0db9e0e8cd31)
 ### Hi there 👋, my name is jk jumur
 #### programmer
 
